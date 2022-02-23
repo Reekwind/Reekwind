@@ -1,5 +1,5 @@
 Hi, I’m @Reekwind (Creakthistle)
-I’m interested in ... Learning a programming environment with properties to interact with, avoiding attributation.
+I’m interested in ... properties to interact with direct attributation (Safe system organization with intact structural integrity. that is, actual parallels in actual order) Safe is not the same as locked. Safe and open, with own/self regulation, if possible) Difficult to express.
 
 I’m currently learning ... I am not sure, Must learn all environments it seems, in order to find one that is actually true.
 
