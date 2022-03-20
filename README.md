@@ -14,3 +14,5 @@ Please go ahead and give critique in any form, I need to learn. I am as things a
 
 
 And I know nothing.
+
+I just store stuff here.. most is gibberish
